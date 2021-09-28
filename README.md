@@ -2,6 +2,8 @@
 
 Here is Rui. Sometiems trapped with depression, but now I'm fight against it.
 
+BLUE PERIOD.
+
 <!-- ### Markdown
 
 Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
